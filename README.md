@@ -61,6 +61,10 @@ Uma cena vibrante e inspiradora, retratada de forma realista e detalhista, mostr
 
 . META AI WhatsApp (criação de imagens)
 
+👨‍💻 AUTORA
+
+Giceli D. Souza (CAIXA)
+
 
 
 
